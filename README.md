@@ -2,7 +2,7 @@
 - 👀 I’m interested in lots of Money
 - 🌱 I’m currently learning How to rule the World
 - 💞️ I’m looking to collaborate on Humanity
-- 📫 How to reach me mail me
+- 📫 How to reaach me - untracable
 
 <!---
 sahilisu/sahilisu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
